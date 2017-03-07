@@ -4,6 +4,21 @@
 
 _Via the_ [_Shepherd Princess Pageant_](https://www.facebook.com/shepherds.princesspagent?hc_ref=PAGES_TIMELINE) _page_
 
-**_~~So much FUN tonight! Thank you to everyone who came and helped tonight!! I know they appreciate it, and it was so nice for the girls (and some brothers and sisters and cousins and moms and dads) to join in and see them have so much fun! You girls and moms and dads and grandparents ROCK!~~_**
+So much FUN tonight! Thank you to everyone who came and helped tonight!! I know they appreciate it, and it was so nice for the girls \(and some brothers and sisters and cousins and moms and dads\) to join in and see them have so much fun! You girls and moms and dads and grandparents ROCK!
 
-![images/shepherdprincess015.jpg](assets/imagesshepherdprincess015jpg.jpeg)![images/shepherdprincess001.jpg](assets/imagesshepherdprincess001jpg.jpeg)![images/shepherdprincess007.jpg](assets/imagesshepherdprincess007jpg.jpeg)![images/shepherdprincess005.jpg](assets/imagesshepherdprincess005jpg.jpeg)![images/shepherdprincess002.jpg](assets/imagesshepherdprincess002jpg.jpeg)![images/shepherdprincess003.jpg](assets/imagesshepherdprincess003jpg.jpeg)![images/shepherdprincess006.jpg](assets/imagesshepherdprincess006jpg.jpeg)![images/shepherdprincess009.jpg](assets/imagesshepherdprincess009jpg.jpeg)![images/shepherdprincess010.jpg](assets/imagesshepherdprincess010jpg.jpeg)![images/shepherdprincess011.jpg](assets/imagesshepherdprincess011jpg.jpeg)![images/shepherdprincess012.jpg](assets/imagesshepherdprincess012jpg.jpeg)![images/shepherdprincess013.jpg](assets/imagesshepherdprincess013jpg.jpeg)![images/shepherdprincess014.jpg](assets/imagesshepherdprincess014jpg.jpeg)![images/shepherdprincess004.jpg](assets/imagesshepherdprincess004jpg.jpeg)![images/shepherdprincess008.jpg](assets/imagesshepherdprincess008jpg.jpeg)
+![shepherdprincess015.jpg](assets/shepherdprincess015.jpg)
+![shepherdprincess001.jpg](assets/shepherdprincess001.jpg)
+![shepherdprincess007.jpg](assets/shepherdprincess007.jpg)
+![shepherdprincess005.jpg](assets/shepherdprincess005.jpg)
+![shepherdprincess002.jpg](assets/shepherdprincess002.jpg)
+![shepherdprincess003.jpg](assets/shepherdprincess003.jpg)
+![shepherdprincess006.jpg](assets/shepherdprincess006.jpg)
+![shepherdprincess009.jpg](assets/shepherdprincess009.jpg)
+![shepherdprincess010.jpg](assets/shepherdprincess010.jpg)
+![shepherdprincess011.jpg](assets/shepherdprincess011.jpg)
+![shepherdprincess012.jpg](assets/shepherdprincess012.jpg)
+![shepherdprincess013.jpg](assets/shepherdprincess013.jpg)
+![shepherdprincess014.jpg](assets/shepherdprincess014.jpg)
+![shepherdprincess004.jpg](assets/shepherdprincess004.jpg)
+![shepherdprincess008.jpg](assets/shepherdprincess008.jpg)
+
