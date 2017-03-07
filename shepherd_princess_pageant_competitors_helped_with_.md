@@ -6,7 +6,7 @@ _Via the_ [_Shepherd Princess Pageant_](https://www.facebook.com/shepherds.princ
 
 So much FUN tonight! Thank you to everyone who came and helped tonight!! I know they appreciate it, and it was so nice for the girls \(and some brothers and sisters and cousins and moms and dads\) to join in and see them have so much fun! You girls and moms and dads and grandparents ROCK!
 
-![shepherdprincess015.jpg](assets/imagesshepherdprincess015.jpg)
+![shepherdprincess015.jpg](/assets/imagesshepherdprincess015.jpg)
 ![shepherdprincess001.jpg](assets/shepherdprincess001.jpg)
 ![shepherdprincess007.jpg](assets/shepherdprincess007.jpg)
 ![shepherdprincess005.jpg](assets/shepherdprincess005.jpg)
